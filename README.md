@@ -1,3 +1,4 @@
 # Simulacro2
-Melany
-Esteban Brkic / Que aparezcan todos los errores
+Melan
+Esteban Brkic / Que aparezcan todos los errore
+Valentina Hernandez
